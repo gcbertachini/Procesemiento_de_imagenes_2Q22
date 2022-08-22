@@ -1,1 +1,0 @@
-# Procesemiento_de_imagenes_2Q22
